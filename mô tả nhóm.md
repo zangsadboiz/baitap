@@ -1,1 +1,1 @@
-Siêng năng, học giỏi, đẹp trai, nhà giàu đó là những cái mà nhóm chúng em không có
+Siêng năng, học giỏi, đẹp trai, nhiều tiền đó là những phẩm chất mà nhóm chúng em không có
